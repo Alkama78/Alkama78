@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to upskill myself
 - 💞️ I’m looking to collaborate on work
 - 📫 How to reach me just search me if you really want to.
-- 😄 Pronouns: khansahab
+- 😄 Pronouns: KhanSahab
 - ⚡ Fun fact: nothing, just do your work!
 
 <!---
